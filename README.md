@@ -1,1 +1,1 @@
-Try the game: https://berryblitz.neurohealthalliance.org/ 
+BerryBlitz: https://berryblitz.neurohealthalliance.org
